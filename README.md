@@ -1,1 +1,1 @@
-# certification of completion of various trainings
+# certification obtained from various platforms and trainings
