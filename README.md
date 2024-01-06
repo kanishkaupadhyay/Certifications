@@ -1,1 +1,1 @@
-# certification obtained from various platforms and trainings
+# Certification obtained from various platforms and trainings
